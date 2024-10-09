@@ -41,5 +41,5 @@ Here are some commands you can use with Inertia:
 Author
 👤 Ashutosh Ranjan
 📫 Email: chandraashutosh928@gmail.com
-🔗 Linktree -https://linktr.ee/ashutoshrjn?utm_source=linktree_profile_share
+🔗 How to Reach Me: [Linktree Profile](https://linktr.ee/ashutoshrjn?utm_source=linktree_profile_share)
 
